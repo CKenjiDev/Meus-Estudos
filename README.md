@@ -26,9 +26,3 @@
 ### 6 - CURSO DE MONTAGEM DE PC
 
 - Curso na plataforma __Hotmart Sparkle__, ministrado pelo __*Prof. Bruno Semann Pereira*__.
-
-- 
-
-- 
-
-- 
